@@ -1,5 +1,9 @@
+- I'm surf-surf.
+  
+- I go by she/him/it. never use they/them for me.
 
-<!---
-tamamelon/tamamelon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- you'll often see me as sugarpea, my scene pony.
+
+- this is only for my pony town account.
+
+- thank you for reading.
